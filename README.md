@@ -89,6 +89,9 @@ https://time.com/3658167/should-i-eat-whole-wheat-pasta/
 An Unlikely Duo: Salty and Sweet
 Ever wonder why you like the combination of salt and sweet (like in this salad)? The answer is on the tip of your tongue. Read more here: https://www.eater.com/ad/17313326/sweet-salty-flavor-combination-science
 
+Cold Soup?
+Cold soup? Yes! It’s been done throughout history – and thank Spain for this great idea. Read more about the origins and different variations of gazpacho here: https://www.latimes.com/archives/la-xpm-2003-aug-13-fo-gazpa13-story.html
+
 
 
 
