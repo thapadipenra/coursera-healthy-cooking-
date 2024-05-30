@@ -101,6 +101,10 @@ What Is Tahini?
 Ever wondered what tahini is? Where does it come from and how should I use and store it? Find our here: 
 https://www.thespruceeats.com/tahini-and-tahini-sauce-difference-2356042
 
+Why Oysters, Mussels, and Clams Could Hold the Key to More Ethical Fish Farming
+Did you know that bi-valves, like clams, are considered very environmentally friendly seafood? Eaten in moderation, they can also be a nutritious source of protein for us too! Read more here: 
+https://www.theguardian.com/sustainable-business/2017/jan/23/aquaculture-bivalves-oysters-factory-farming-environment
+
 
 
 
