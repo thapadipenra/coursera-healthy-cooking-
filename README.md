@@ -55,6 +55,14 @@ It may surprise you to read about the history of how Chimichurri got its name. T
 https://www.gaucho-grills.com/blog/2016/12/15/the-origins-of-chimichurri-in-argentine-cuisine
 
 
+All About Lentils
+Learn more about the different types of lentils and how to cook them. Feel free to mix and match the lentils you can easily find in your region!
+
+https://www.healthline.com/nutrition/lentils#nutrition
+
+
+
+
 
 
 
