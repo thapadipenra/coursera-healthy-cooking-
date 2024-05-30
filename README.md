@@ -12,4 +12,10 @@ A quick an interesting read about the popularity of cottage cheese in the US in 
 https://www.webmd.com/diet/ss/slideshow-all-about-cottage-cheese
 
 
+Why Steel-cut Oatmeal
+Read what Dr. Andrew Weil has to say about the health benefits of steel-cut oats.
+
+https://www.drweil.com/diet-nutrition/nutrition/why-steel-cut-oatmeal/
+
+
 
