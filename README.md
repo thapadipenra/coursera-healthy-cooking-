@@ -74,6 +74,17 @@ https://www.webmd.com/diet/ss/slideshow-avocados-health-benefits
 But remember that variety and moderation are the keys to health and enjoyment! There really are no “superfoods” that should be eaten in large amounts. Rather, eating a variety of (ideally local and fresh) whole foods in moderate amounts – those are the real super foods.
 
 
+Halibut: A Sustainable Choice?
+Wondering whether halibut falls into the sustainable seafood category? Read more about Pacific Halibut here: 
+
+https://www.fisheries.noaa.gov/species/pacific-halibut
+
+You'll see, however, that Atlantic Halibut is overfished, so always check where your fish was caught or sustainably farmed and make the best decisions you can, given what’s available in your region.
+
+
+
+
+
 
 
 
