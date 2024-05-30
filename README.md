@@ -93,6 +93,13 @@ Cold Soup?
 Cold soup? Yes! It’s been done throughout history – and thank Spain for this great idea. Read more about the origins and different variations of gazpacho here: https://www.latimes.com/archives/la-xpm-2003-aug-13-fo-gazpa13-story.html
 
 
+The Forbidden Rice
+Ever wondered why black rice is sometime called “forbidden rice” and why it was once reserved for the aristocracy? Find out here: 
+https://www.thespruceeats.com/what-is-forbidden-rice-1664717
+
+
+
+
 
 
 
