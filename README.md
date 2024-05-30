@@ -37,6 +37,12 @@ Click through this short slide show to learn more about why olive oil is conside
 https://www.webmd.com/diet/ss/slideshow-health-benefits-of-olive-oil
 
 
+The Health Benefits of Quinoa
+Read this Harvard article about the health benefits of quinoa.
+
+https://www.hsph.harvard.edu/nutritionsource/food-features/quinoa/
+
+
 
 
 
