@@ -32,6 +32,15 @@ Take a few minutes to read about the proposed health benefits of eating dark cho
 https://www.everydayhealth.com/diet-and-nutrition-pictures/delicious-reasons-to-eat-dark-chocolate.aspx
 
 
+All About Olive Oil, the Healthy Fat
+Click through this short slide show to learn more about why olive oil is considered a “healthy fat” 
+https://www.webmd.com/diet/ss/slideshow-health-benefits-of-olive-oil
+
+
+
+
+
+
 
 
 
