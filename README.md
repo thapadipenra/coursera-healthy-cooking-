@@ -111,6 +111,13 @@ Learn about the health benefits of squash by exploring this:
 https://www.webmd.com/diet/health-benefits-squash#1
 
 
+Italian Cooking Terms You Should Know
+Oh, Italy… land of great flavors, art, a beautiful language and so much more! Read these Italian cooking terms (including cartoccio) – it’s possible that even just saying these words out loud will make you a better cook: 
+https://www.italiantranslation-teaching.com/learn-italian/ten-italian-cooking-terms-know/
+
+
+
+
 
 
 
