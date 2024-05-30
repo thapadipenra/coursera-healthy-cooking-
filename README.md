@@ -43,6 +43,14 @@ Read this Harvard article about the health benefits of quinoa.
 https://www.hsph.harvard.edu/nutritionsource/food-features/quinoa/
 
 
+10 Surprising Ways to Use Black Beans
+Take a few moments to explore some other ideas for how to make black beans into delicious meals. Remember, it’s all about creativity!
+
+https://www.everydayhealth.com/pictures/surprising-ways-use-black-beans/
+
+
+
+
 
 
 
