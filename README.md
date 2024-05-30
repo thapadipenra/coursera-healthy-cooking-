@@ -26,6 +26,14 @@ Ever wondered where the omelette originated? Read this to find out:
 https://wordhistories.net/2017/08/15/origin-of-omelette/
 
 
+Health Benefits of Eating Dark Chocolate
+Take a few minutes to read about the proposed health benefits of eating dark chocolate (in moderate amounts of course)!
+
+https://www.everydayhealth.com/diet-and-nutrition-pictures/delicious-reasons-to-eat-dark-chocolate.aspx
+
+
+
+
 
 
 
