@@ -86,6 +86,9 @@ Is Whole Wheat Pasta Really Better for Us?
 Is whole wheat pasta really better for us than regular pasta? Find out more by reading this: 
 https://time.com/3658167/should-i-eat-whole-wheat-pasta/
 
+An Unlikely Duo: Salty and Sweet
+Ever wonder why you like the combination of salt and sweet (like in this salad)? The answer is on the tip of your tongue. Read more here: https://www.eater.com/ad/17313326/sweet-salty-flavor-combination-science
+
 
 
 
