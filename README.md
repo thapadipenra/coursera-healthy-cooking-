@@ -106,6 +106,11 @@ Did you know that bi-valves, like clams, are considered very environmentally fri
 https://www.theguardian.com/sustainable-business/2017/jan/23/aquaculture-bivalves-oysters-factory-farming-environment
 
 
+Health Benefits of Squash
+Learn about the health benefits of squash by exploring this: 
+https://www.webmd.com/diet/health-benefits-squash#1
+
+
 
 
 
