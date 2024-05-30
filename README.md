@@ -49,6 +49,12 @@ Take a few moments to explore some other ideas for how to make black beans into 
 https://www.everydayhealth.com/pictures/surprising-ways-use-black-beans/
 
 
+How Chimichurri Got Its Name
+It may surprise you to read about the history of how Chimichurri got its name. Take a few moments to do that now.
+
+https://www.gaucho-grills.com/blog/2016/12/15/the-origins-of-chimichurri-in-argentine-cuisine
+
+
 
 
 
