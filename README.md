@@ -66,6 +66,14 @@ Garbanzo Beans
 Chickpeas are the most widely consumed legume in the world, although you might know them by a different name, like garbanzo, ceci, chana or gram! Read more about where they come from and how they’re used.
 
 
+The Health Benefits of Avocados
+Avocados have been touted for their health benefits. Read more about those here: 
+
+https://www.webmd.com/diet/ss/slideshow-avocados-health-benefits
+
+But remember that variety and moderation are the keys to health and enjoyment! There really are no “superfoods” that should be eaten in large amounts. Rather, eating a variety of (ideally local and fresh) whole foods in moderate amounts – those are the real super foods.
+
+
 
 
 
