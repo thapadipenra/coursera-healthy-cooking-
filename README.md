@@ -62,6 +62,11 @@ https://www.healthline.com/nutrition/lentils#nutrition
 
 
 
+Garbanzo Beans
+Chickpeas are the most widely consumed legume in the world, although you might know them by a different name, like garbanzo, ceci, chana or gram! Read more about where they come from and how they’re used.
+
+
+
 
 
 
